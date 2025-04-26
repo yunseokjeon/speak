@@ -334,3 +334,19 @@ I don't believe in superstitions.
 
 But there are things in this world that I can't explain.
 
+85) 단언할 수 없지만, 후보 A가 낙승할 것 같습니다.
+
+I can't say for sure, but I think candidate A will win by a landslide.
+
+86) 단언할 수 없지만, 후보 A가 신승할 것 같습니다.
+
+I can't say for sure, but I think candidate A will win by a narrow margin.
+
+87) 그는 깐깐하게 생겼다.
+
+He looks like a stickler.
+
+88) 운하 건설 덕분에 수송 거리가 절반 이하로 줄었다.
+
+Thanks to the canal construction, the transportation distance was cut by more than half.
+
