@@ -350,3 +350,19 @@ He looks like a stickler.
 
 Thanks to the canal construction, the transportation distance was cut by more than half.
 
+89) 한국은 경기가 안 좋은 데, 일본은 어떤가요?
+
+The economy's rough in Korea right now, but how's it doing in Japan?
+
+90) 제대로 읽지 않고, email을 지웠다.
+
+I deleted the email without reading it properly.
+
+91) AGI 출현이 임박했다구요? FSD는 언제 가능한가요?
+
+The emergence of AGI is imminent? When will FSD be possible?
+
+92) 급습
+
+incursion
+
