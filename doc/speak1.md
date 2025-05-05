@@ -366,3 +366,41 @@ The emergence of AGI is imminent? When will FSD be possible?
 
 incursion
 
+93) 두 정당 간의 적대감이 어떤 의미 있는 협력도 방해해왔습니다.
+
+The antagonism between the two political parties has prevented any meaningful collaboration.
+
+94) 그녀의 질서정연함은 책장을 장르별로 그리고 그 다음 알파벳 순으로 정리하는 방식에서 분명히 드러났습니다.
+
+Her orderliness was evident in the way she organized her bookshelf by genre and then alphabetically.
+
+95) 그 외교관은 언론의 도발적인 질문들에 직면했을 때 놀라운 자제력을 보여주었습니다.
+
+The diplomat showed remarkable restraint when faced with provocative questions from the press.
+
+96) 마케팅 부서에서 짧은 근무 기간을 마친 후, 그녀는 팀장으로 승진했습니다.
+
+After a brief stint in the marketing department, she was promoted to team leader.
+
+97) 그가 늦은 것에 대한 설명은 그가 언급한 교통 체증이 실제로 발생하지 않았다는 것을 알기 전까지는 그럴듯해 보였습니다.
+
+His explanation for being late seemed plausible until we discovered the traffic jam he mentioned never occurred.
+
+98) 금요일까지 프로젝트를 완료하는 것은 도전적이지만 우리 모두가 함께 노력한다면 분명히 실현 가능합니다.
+
+Finishing the project by Friday is challenging but definitely doable if we all work together.
+
+99) 모든 설문조사의 집계 데이터는 온라인 쇼핑으로의 명확한 추세를 보여줍니다.
+
+The aggregate data from all our surveys shows a clear trend toward online shopping.
+
+100) 똑딱거리는 시계의 단조로운 소리만이 방 안의 침묵을 깨고 있었습니다.
+
+The monotonous sound of the ticking clock was the only thing breaking the silence in the room.
+
+101) 좋은 칼은 어떤 진지한 요리사에게도 없어서는 안 될 필수품입니다.
+
+A good knife is indispensable for any serious chef.
+
+
+
