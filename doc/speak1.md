@@ -402,5 +402,46 @@ The monotonous sound of the ticking clock was the only thing breaking the silenc
 
 A good knife is indispensable for any serious chef.
 
+102) 과학자들은 현재 이론으로는 설명할 수 없는 데이터 상의 변칙을 발견했습니다.
+
+Scientists discovered an anomaly in the data that could not be explained by current theories.
+
+103) 벚꽃의 아름다움은 덧없어서 매년 봄에 단 며칠만 지속됩니다.
+
+The beauty of cherry blossoms is ephemeral, lasting only a few days each spring.
+
+104) 그들의 여행 계획은 내일까지 날씨 상태가 개선되는 조건에 달려 있습니다.
+
+Their travel plans are contingent on the weather conditions improving by tomorrow.
+
+105) 다양한 문학 작품을 읽는 것은 여러 문화에 대한 당신의 이해를 풍요롭게 할 수 있습니다.
+
+Reading diverse literature can enrich your understanding of different cultures.
+
+106) 소셜 미디어는 오늘날 젊은이들의 삶에 만연한 영향력이 되었습니다.
+
+Social media has become a pervasive influence in the lives of young people today.
+
+107) 최근의 경제 위기는 더 나은 금융 규제의 필요성을 강조합니다.
+
+The recent economic crisis underscores the need for better financial regulations.
+
+108) 환자는 제대로 회복하기 위해 적어도 사흘 동안 자신을 침대에 제한해야 합니다.
+
+The patient must confine herself to bed for at least three days to recover properly.
+
+109) 판사는 모든 증거를 들은 후 최종 판결을 선언할 것입니다.
+
+The judge will pronounce the final verdict after hearing all the evidence.
+
+110) 그의 대중 연설에 대한 두려움은 그의 경력 발전에 중요한 장애물이었습니다.
+
+His fear of public speaking was a significant impediment to his career advancement.
+
+111) 그 회사는 공급업체와의 계약 위반으로 인해 법적 조치에 직면해 있습니다.
+
+The company is facing legal action due to a breach of contract with their suppliers.
+
+
 
 
