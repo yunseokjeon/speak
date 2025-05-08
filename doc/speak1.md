@@ -442,6 +442,31 @@ His fear of public speaking was a significant impediment to his career advanceme
 
 The company is facing legal action due to a breach of contract with their suppliers.
 
+112) 과학적 방법의 핵심 원칙은 모든 가설이 검증 가능하고 반증 가능해야 한다는 것입니다.
+
+A core tenet of the scientific method is that all hypotheses must be testable and falsifiable.
+
+113) 교수는 학생들에게 연구 논문에서 주요 논점들을 명확하게 설명하도록 요청했습니다.
+
+The professor asked students to delineate the main arguments in their research papers clearly.
+
+114) 그 단체의 목표는 기후 변화에 관한 정확한 정보를 대중에게 보급하는 것입니다.
+
+The organization's goal is to disseminate accurate information about climate change to the public.
+
+115) 이 거래 조건에 만족합니다.
+
+I'm totally cool with these terms.
+
+116) 무슨 그런 섭섭한 말씀을. 토요일만 기다리고 있다.
+
+Come on, don't say that! I've been counting down the days till Saturday.
+
+117) 건물 내부를 구경해도 될까요?
+
+Can I take a look around inside?
+
+
 
 
 
