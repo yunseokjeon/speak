@@ -498,6 +498,40 @@ This is the northernmost post office.
 
 Is this your first time in Korea?
 
+126) 아침에 수염을 짧게 깎았다.
+
+I trimmed my beard short this morning.
+
+127) 점점 해가 지고 있다.
+
+The sun is gradually setting.
+
+128) 그 말씀에 동감합니다.
+
+I totally agree with what you said.
+
+129) 무엇이 당신을 레바논에 오게 했습니까?
+
+What brought you to Lebanon?
+
+130) 한국은 겨울에 눈이 많이 내린다.
+
+Korea gets a lot of snow in winter.
+
+131) 논문에서는 정보가 함축되어 있다. 그래서 중간 과정이 생략되어 있다.
+
+The paper has condensed information. That's why the intermediate steps are omitted.
+
+132) 케첩을 뿌린 음식
+
+Food drizzled with ketchup
+
+133) 지하철역까지 차 태워 드릴까요?
+
+Want a ride to the subway station?
+
+
+
 
 
 
