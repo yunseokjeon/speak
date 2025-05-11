@@ -466,6 +466,41 @@ Come on, don't say that! I've been counting down the days till Saturday.
 
 Can I take a look around inside?
 
+118) 미국을 다시 예전만큼 믿을 수 있을까?
+
+Can we trust America as much as we used to?
+
+119) 비트코인 가격이 10만 달러를 상회한다면 제 예측이 틀렸음을 기분 좋게 인정하겠습니다.
+
+If Bitcoin prices exceed $100,000, I'll happily admit that my prediction was wrong.
+
+120) 파국의 암시
+
+Signs of catastrophe
+
+121) 시스템이 복잡해지면서 유지보수가 점점 어려워졌다.
+
+As the system got more complex, maintenance became increasingly difficult.
+
+122) 포스팅을 왜 이렇게 자주 삭제해?
+
+Why do you delete your posts so often?
+
+123) 여기서 먹는 올리브가 한국에서 보다 더 쓰네요.
+
+The olives here taste more bitter than the ones in Korea.
+
+124) 이곳은 가장 북쪽에 있는 우체국이다.
+
+This is the northernmost post office.
+
+125) 한국에 처음 와 본 건가요?
+
+Is this your first time in Korea?
+
+
+
+
 
 
 
