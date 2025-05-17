@@ -530,6 +530,28 @@ Food drizzled with ketchup
 
 Want a ride to the subway station?
 
+134) 블랙 스완 이벤트, 정상적인 상황에서는 예측하기 어렵지만 돌이켜보면 불가피했던 것처럼 보이는 고영향 사건.
+
+black swan event, high-impact event that is difficult to predict under normal circumstances but that in retrospect appears to have been inevitable.
+
+135) 냉장고에 먹을 게 다 떨어졌네.
+
+We're all out of food in the fridge.
+
+136) 두고 보자.
+
+Just you wait.
+
+137) 방금 통화가 끝났어.
+
+I just got off the phone.
+
+138) 대부분이 잘못 알고 있는 9가지 사실
+
+Nine facts most people get wrong.
+
+
+
 
 
 
