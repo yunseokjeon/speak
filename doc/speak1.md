@@ -550,8 +550,253 @@ I just got off the phone.
 
 Nine facts most people get wrong.
 
+139) 앞으로 10년은 지난 10년 보다 물가 변동성이 더 클 것이다.
 
+We're going to see a lot more price volatility over the next decade than we did over the past one.
 
+140) 전 대통령의 일일 정보 브리핑 담당자였어요.
+
+I was the president's daily intelligence briefer.
+
+141) 일주일에 6일을 브리핑했죠.
+
+I briefed him six days a week.
+
+142) 그가 세계 어디에 있든 함께 있었어요.
+
+No matter where he was in the world, I was with him.
+
+143) 일어나서 대통령을 미국 대통령을 맞아 주세요.
+
+Stand and recognize the President of the United States.
+
+144) 9월 11일 아침에 부시 대통령과 함께 있었어요.
+
+And I was with President Bush on the morning of September 11th.
+
+145) 대통령과 저는 들었어요 / 이 비행기에 대해 / 세계 무역 센터에 충돌한.
+
+The president and I were told about this plane hitting the World Trade Center.
+
+146) 당시엔 작은 비행기 사고일 거라 생각했었죠.
+
+The assumption was, this must've been a small-plane accident.
+
+147) CIA 작전 센터에 전화하니,
+
+I called the CIA operations center,
+
+148) 정보를 하나 알려주더군요.
+
+and they did have one piece of information for us,
+
+149) 대형 여객기였다는 사실이었죠.
+
+which was that it was a large commercial jet.
+
+150) 그걸 보고 있었어요, 푸른 하늘이 아름다운 날이었죠.
+
+I was looking at it, and it was a beautiful day, blue sky.
+
+151) 그런데 타워에 검은 구멍이 생겼더군요.
+
+And there was this black hole in the tower.
+
+152) 책상에서 전화벨이 울려서 받았어요, 아는 목소리였죠.
+
+The phone rings on my desk. I pick it up, recognize the guy's voice.
+
+153) 737 같은 민간 항공기가 타워에 충돌했어요.
+
+He said, "A 737-like commercial airliner flew into the tower."
+
+154) 조종사가 고의로 비행기를 타워에 충돌시켰어요.
+
+"The pilot purposefully flew the plane into the tower."
+
+155) 우린 공격받은 겁니다. 지금 대피 중이에요.
+
+"We've been struck. I'm evacuating my position."
+
+156) 고의예요, 알프레드. 누군가 작정하고 이러는 거예요.
+
+That's on purpose, Alfred. Somebody is doing this on purpose.
+
+157) 백악관 비서실장이 대통령이 있는 교실에 들어가
+
+The White House chief of staff went into the room with the President
+
+158) 귀에 대고 속삭였어요 두 번째 비행기가 충돌했고
+
+and whispered in his ear that a second plane has hit.
+
+159) 미국이 공격받고 있다고요
+
+America is under attack.
+
+160) 대통령은 잠시 거기에 앉아 있었죠
+
+The president sat there for a few moments,
+
+161) 멍했던 것 같아요.
+
+I think, not knowing quite what to do.
+
+162) 충격받은 것처럼 보이지만
+
+You can see him being stunned by it,
+
+163) 동시에 침착해 보이죠
+
+but also see his composure.
+
+164) 애들을 겁주기 싫었다고 하시더군요
+
+Later, he would say he didn't wanna scare the kids.
+
+165) 전 누가 학교에다 비행기를 들이받지 않을까 걱정했죠
+
+I'm standing there wondering if somebody's gonna fly a plane into the school.
+
+166) 테닛 국장은 테러리스트들이 CIA 본부에 비행기를 날리려 한다느 위협 정보를 입수했다고 말했어요
+
+Director Tenet stated that we had threat intelligence that terrorists wanted to fly a plane into CIA headquarters.
+
+167) 센터장이 우리를 모아 놓고 이렇게 말한 게 기억나요
+
+I remember our manager bringing us together and just saying,
+
+168) 국장이 건물에서 모든 부서의 대피를 명령했다
+
+"The director has ordered an evacuation of the building
+
+169) 대테러 센터만 빼고
+
+except for the counterterrorist center."
+
+170) 가족에게 전화해서 개를 대신 돌봐달라고 해
+
+"Call the people in your life to take care of your dog
+
+171) 집 문도 잠그라고 하고 지금부터 전쟁이야
+
+and lock up your house 'cause we're going to war."
+
+172) 당장 24시간 풀가동이야
+
+"We're gonna have to go 24-7 immediately."
+
+173) 울고 있는 사람을 밖으로 내보낸 기억이 나요
+
+I remember some person crying and then kicking that person out
+
+174) 울음소리를 듣기 싫었거든요 할 일이 있었으니까요
+
+because they don't wanna listen to you cry and we have things to do.
+
+175) 그 순간엔 정말로 아무런 감정을 처리하지 않았어요
+
+So, like, at that moment, I really wasn't processing.
+
+176) 그냥 이랬죠 '무슨 지시를 받든 그걸 해치우자'
+
+I was just, "Whatever I'm told to do, like, let's do it."
+
+177) 수신 상태는 어떤가?
+
+How do you read?
+
+178) 다음 공격은 어떻게 일어날까? 이번과 같을까 다를까?
+
+How is the next attack gonna happen? Is it gonna look like this or different?
+
+179) 아메리칸 77에 연락 중입니다.
+
+Trying to get ahold of American 77.
+
+180) 레이더 신호도, 연락도 끊겼어요
+
+They lost radar with him. They lost contact with him.
+
+181) 모든 게 끊겼어요 행방도, 상황도 알 수가 없습니다
+
+They lost everything, and they don't have any idea where he is or what happened.
+
+182) 납치된 항공기가 더 있을 가능성이 있습니다.
+
+We could have another loose aircraft out there somewhere.
+
+183) 다른 목표물을 알아내느라 동분서주했어요.
+
+We're racing to see what else might be the target.
+
+184) 얼마 지나지 않아 또 다른 항공기 납치 보고를 들었고
+
+It doesn't take long before we're hearing reports of another hijacking,
+
+185) 즉시 그게 어디로 향하고 있는지 파악하려 했어요
+
+and we're trying to immediately figure out where is it going.
+
+186) 납치된 세 번째 항공기가 워싱턴으로 향하고 있습니다
+
+Third aircraft hijacked heading towards Washington.
+
+187) 지금까지 이상하거나 허황되다고 여겼던 모든 위협 보고를 살펴봤어요 
+
+We were looking at all the threat reporting that you've ever looked at that you just thought was flaky or aspirational,
+
+188) 이 중 하나라도 실제로 일어날 수 있다고 가정하면서요
+
+now assuming any one of these things might come true.
+
+189) 아메리칸 77과 연락이 닿았나?
+
+Did you get ahold of American 77 by chance?
+
+190) 내셔널 공항으로 들어오는 모든 착륙을 금지한다
+
+Shut down all arrivals into National Airport.
+
+191) 펜타곤 내부의 그 누구도 우리가 위험에 처했다고 생각하지 않았어요
+
+Never did any one of us inside the Pentagon think that our location was at risk.
+
+192) 뒤쪽에서 폭발이 느껴졌는데 
+
+I felt the blast come from behind.
+
+193) 즉시 제게 불이 붙은 걸 감지했어요
+
+Immediately, I sensed that I was on fire.
+
+194) 주변의 모든 게 불타고 있었고
+
+Everything was burning all around me.
+
+195) 간신히 불길에서 빠져나오고 있었어요
+
+I was clawing my way through.
+
+196) 펜타곤에서 연기가 뿜어져 나오고 있습니다
+
+There is smoke pouring out of the Pentagon.
+
+197) 몸의 47% 이상이 화상을 입었고
+
+I had been burned on over 47% of my body,
+
+198) 제트 연료와 연기를 너무 많이 마셔서
+
+and I had inhaled so much jet fuel and smoke,
+
+199) 심정지가 두 번 왔었어요.
+
+I flatlined twice.
+
+200) 그 시점에서 대통령은 테러리스트들의 주요 표적이었죠
+
+The president was, at that point, a prime target for terrorists.
 
 
 
